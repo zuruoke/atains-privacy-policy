@@ -1,1 +1,0 @@
-# atains-privacy-policy
